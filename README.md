@@ -1,2 +1,10 @@
 # git_practice
 aaaaaaaaaaa
+aaaaaaaaaaa
+aaaaaaaaaaa
+aaaaaaaaaaa
+aaaaaaaaaaa
+aaaaaaaaaaa
+aaaaaaaaaaa
+aaaaaaaaaaa
+aaaaaaaaaaa
